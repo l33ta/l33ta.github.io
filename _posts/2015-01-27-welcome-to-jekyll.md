@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Welcome to My Blog!"
-date:   2015-01-27 21:38:28
+date:   2015-01-27
 categories: random
 ---
 This is my first post. I love my blog!
