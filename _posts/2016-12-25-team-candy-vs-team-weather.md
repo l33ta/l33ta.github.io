@@ -20,4 +20,4 @@ The events were all fun, individual competitions. Some of the events were funnie
 
 As you can see, it was very close, but the kids won the day!
 
-![Candy vs. Weather](https://photos.smugmug.com/2016/December/i-jtmtQgk/0/M/20161225-candy-vs-weather-M.jpg)
+![Candy vs. Weather](https://photos.smugmug.com/2016/December/i-PLs7Hs4/0/M/20161225_142856-M.jpg)
