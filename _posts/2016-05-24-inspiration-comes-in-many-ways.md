@@ -8,7 +8,7 @@ I have been reading a book called Sew Zoey and I like it. The book is about sewi
 has inspired me to start a new sewing project. To help me decide what I should sew, I have been
 drawing my designs. Here is one of them.
 
-![dress design](https://www.ortizaggies.com/2016/May/i-M44hBG8/0/M/attachment-M.jpg)
+![dress design](https://photos.smugmug.com/2016/May/i-M44hBG8/0/M/attachment-M.jpg)
 
 I can hardly wait to start sewing one of my designs with my grandmother, Siti!
 
