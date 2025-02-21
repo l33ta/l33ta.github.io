@@ -1,3 +1,1 @@
-- 👋 Hi, I’m Alita Ortiz
-- 👀 I’m interested in Dance
-- 🌱 I’m currently learning More Dance
+Junior Marketing major at Texas A&M University
